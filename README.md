@@ -1,0 +1,2 @@
+# premium-high-tech-tank-001-high-tech-planted-tank-light
+Tired of losing track of your CO2 schedule or forgetting to adjust your lighting intensity? The High Tech Planted Tank &amp; Light Craft Lab turns your chaotic aquarium notebook into a precision-controlled lab environment—so every plant thrives and your DIY light projects stay on track.  This Notion template centralizes all your tank data (water parame
